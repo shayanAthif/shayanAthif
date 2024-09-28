@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shayanathif13@gmail.com**
 
-- ⚡ Fun fact **I Like To Sleep Early**
+- ⚡ Fun fact **I Like To Sleep Early [Not anymore]**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
